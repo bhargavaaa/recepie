@@ -1,0 +1,6 @@
+½ cup water
+¼ teaspoon salt
+¾ cup white sugar
+18 (1 ounce) squares bittersweet chocolate
+1 cup unsalted butter
+6 eggs
